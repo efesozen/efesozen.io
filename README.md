@@ -1,1 +1,1 @@
-# efesozen.io
+# pareapp.io
